@@ -23,7 +23,7 @@ Go and find this Instagram and bring her to me!
 yes your majesty!
 *(Huntsman finds instagram on the app store and tell her)*
 	
-###Huntsman:
+###Huntsman app store:
 Go run, Instagram, Queen Facebook is trying to keep you for herself! 
 	
 ###Instagram: 
