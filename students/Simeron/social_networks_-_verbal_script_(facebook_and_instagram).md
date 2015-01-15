@@ -31,7 +31,7 @@ OMG thank you!
 	
 *(Later when the huntsman gets back to the queen)*
 
-###Huntsman:
+###Huntsman app store:
 I'm sorry queen I could not find Instagram 
 	
 ###Queen Facebook: 
